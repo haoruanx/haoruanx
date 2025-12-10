@@ -1,4 +1,4 @@
-### Hi there, I'm haoruanwn 👋
+### Hi there, I'm Soruan 👋
 
 I'm an undergraduate student majoring in **Electronic and Information Engineering**.
 
