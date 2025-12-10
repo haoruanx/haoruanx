@@ -1,4 +1,4 @@
-### Hi there, I'm Soruan 👋
+### Hi there, I'm Soruany 👋
 
 I'm an undergraduate student majoring in **Electronic and Information Engineering**.
 
