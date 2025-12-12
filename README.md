@@ -1,4 +1,4 @@
-### Hi there, I'm HyrSoft 👋
+### Hi there, I'm Hyrsoft 👋
 
 I'm an undergraduate student majoring in **Electronic and Information Engineering**.
 
